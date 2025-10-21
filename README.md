@@ -1,4 +1,4 @@
-## 👏 Hi, I'm Andres Daliva!
+## 👏 Hi, I'm !
 ##  About Me
 _Share some information about yourself, including your class, major, jobs, and extra-curriculars._
 ## ⚒️ Skills
